@@ -1,0 +1,1 @@
+# Clikora Media email assets
